@@ -6,4 +6,4 @@ PSD to WordPress, you get much more than just basic coding — you get a fully f
 
 Our PSD to WordPress expert provide you simple, but powerful solutions Responsive website, SEO Friendly, Pixel Perfect and W3C Standard to get your site up and running in no time. We offer a reliable and fast support, 100% customer satisfaction and money-back guarantee. Ready for a PSD to WordPress service!
 
-<a href="https://psdtowpservice.net" target="_blank">W3C standards</a>
+<a href="https://psdtowpservice.net" target="_blank">Go to Our Service page</a>
